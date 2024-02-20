@@ -1,1 +1,1 @@
-# QuarterTech
+# Quadoteck Inc
